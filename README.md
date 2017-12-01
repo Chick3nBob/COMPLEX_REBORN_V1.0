@@ -1,1 +1,8 @@
-# COMPLEX_REBORN_V1.0
+# Project-V #
+
+
+### Credits ###
+
+* VoOoLoX
+* Nilly
+* SD Team
